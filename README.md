@@ -1,2 +1,2 @@
 # emm
-eka maju mesisindo
+eka maju mesinindo
